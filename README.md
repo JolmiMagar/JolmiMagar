@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JolmiMagar
+- 👀 I’m interested in softwere develop
+- 🌱 I’m currently learning softwere
+- 💞️ I’m looking to collaborate on my email 
